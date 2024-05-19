@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **t.sahil@iitg.ac.in**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10ugcbvn7e9I1JvMtJ-138RRJYvKRatco/view?usp=sharing](https://drive.google.com/file/d/10ugcbvn7e9I1JvMtJ-138RRJYvKRatco/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/10ugcbvn7e9I1JvMtJ-138RRJYvKRatco/view?usp=sharing](https://drive.google.com/file/d/13yY_k2ytJA9C-3KMJjMePmpxQ76_RoyR/view?usp=drive_link)
 
 - ⚡ Fun fact **I am also a Chemical Engineer**
 
