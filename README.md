@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/sahiltyagi1999](https://github.com/sahiltyagi1999)
 
-- 💬 Ask me about **C++,C,Javascript,React, Node,**
+- 💬 Ask me about **Tech and World Economy**
 
 - 📫 How to reach me **t.sahil@iitg.ac.in | sahiltyagi1999@gmail.com**
 
