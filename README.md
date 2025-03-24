@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://twitter.com/" target="blank"><img src="https://img.shields.io/twitter/follow/?logo=twitter&style=for-the-badge" alt="" /></a> </p>
 
-- 👨‍💻 All of my projects are available at [https://github.com/sahiltyagi1999](https://github.com/sahiltyagi1999)
+- 👨‍💻 All of my projects areavailable at [https://github.com/sahiltyagi1999](https://github.com/sahiltyagi1999)
 
 - 💬 Ask me about **Tech World Economy**
 
