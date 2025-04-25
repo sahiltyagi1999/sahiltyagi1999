@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Tech World Economy**
 
-- 📫 How to reach me **t.sahil@iitg.ac.in | sahiltyagi1999@gmail.com**
+- 📫 How to reach me **sahiltyagi1999@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/10ugcbvn7e9I1JvMtJ-138RRJYvKRatco/view?usp=sharing](https://drive.google.com/file/d/13yY_k2ytJA9C-3KMJjMePmpxQ76_RoyR/view?usp=drive_link)
 
